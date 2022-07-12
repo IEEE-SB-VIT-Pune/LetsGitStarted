@@ -2,6 +2,6 @@
 
 -[@Ashishgangurde](https://www.linkedin.com/in/ashish-gangurde/)  
 
-Sahil Patil(B3nzeneKnight)\n
+Sahil Patil(B3nzeneKnight)
 
 Aneesh Pathak
