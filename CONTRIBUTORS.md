@@ -1,17 +1,19 @@
 #Contributor Name: - LinkedIn Profile
 
 
--[@Ashishgangurde](https://www.linkedin.com/in/ashish-gangurde/)
+-[@Ashishgangurde](https://www.linkedin.com/in/ashish-gangurde/)  
+
+-[@tusharn85](https://www.linkedin.com/in/tushar-nasery/)
+
 -[@samarth-thosar](https://www.linkedin.com/in/samarth-thosar-076711234/) 
 
 -[@Pranavjoshi](https://www.linkedin.com/in/pranav-joshi-168298231/)
 
-Sahil Patil(B3nzeneKnight)
+-[@SahilPatil](www.linkedin.com/in/sahil-patil-3aa186217)
+
+Aneesh Pathak
 
 -[@RajDugad](https://www.linkedin.com/in/dugad-raj-011742230/)
-
-
-
 
 -[@SaksheeAgrawal](https://www.linkedin.com/in/sakshee-agrawal-b600a4238/) 
 
@@ -21,4 +23,6 @@ Sahil Patil(B3nzeneKnight)
 
 Ameya Prashant Paldewar -[@Mr-Spiritual](https://www.linkedin.com/in/ameya-paldewar/)
 
->>>>>>> e0ed6517c33efc211cfd9ad026ddf77c6039c5f7
+Khushi Agarwal(the-yellowumbrella)
+
+
