@@ -13,7 +13,7 @@
 
 Aneesh Pathak
 
-Raj Dugad(rajdugad)
+-[@RajDugad](https://www.linkedin.com/in/dugad-raj-011742230/)
 
 -[@SaksheeAgrawal](https://www.linkedin.com/in/sakshee-agrawal-b600a4238/) 
 
@@ -21,8 +21,14 @@ Raj Dugad(rajdugad)
 
 -[@Om-Khode](https://www.linkedin.com/in/om-khode/)
 
+-[@MrunmayeePhadke](https://www.linkedin.com/in/mrunmayee-phadke-635060241/)
+
 Ameya Prashant Paldewar -[@Mr-Spiritual](https://www.linkedin.com/in/ameya-paldewar/)
 
 Khushi Agarwal(the-yellowumbrella)
 
 -[@Gaurav_Gangde](https://www.linkedin.com/in/gaurav-gangde-b4ab1a229)
+
+-[@Gauri-Choudhari](https://www.linkedin.com/in/gauri-choudhari-305193231/)
+
+
