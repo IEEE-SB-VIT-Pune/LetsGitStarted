@@ -39,3 +39,4 @@ Khushi Agarwal(the-yellowumbrella)
 
 -[@Amogh-Deshmukh](https://www.linkedin.com/in/amogh-deshmukh-68bb99231/)
 
+-[@divaynshu chore](https://www.linkedin.com/in/divyanshu-chore-2bb413223)
