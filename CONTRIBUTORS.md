@@ -3,6 +3,8 @@
 
 -[@Ashishgangurde](https://www.linkedin.com/in/ashish-gangurde/)  
 
+-[@manas3212](www.linkedin.com/in/manas-jain-185b5522a)
+
 -[@tusharn85](https://www.linkedin.com/in/tushar-nasery/)
 
 -[@samarth-thosar](https://www.linkedin.com/in/samarth-thosar-076711234/) 
@@ -40,3 +42,9 @@ Khushi Agarwal(the-yellowumbrella)
 -[@Amogh-Deshmukh](https://www.linkedin.com/in/amogh-deshmukh-68bb99231/)
 
 -[@divyanshu chore](https://www.linkedin.com/in/divyanshu-chore-2bb413223)
+
+-[@Prajwal Korade](www.linkedin.com/in/prajwal-korade-43a323231)
+
+-[@rutvikghode](https://www.linkedin.com/in/rutvik-ghode-6a35a9231)
+
+
